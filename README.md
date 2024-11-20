@@ -1,0 +1,1 @@
+pokedex feita por werbeson demorou um bucado viu!
